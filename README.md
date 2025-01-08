@@ -1,1 +1,1 @@
-# pnso-kinas-izabela-git
+# pnso-kinas-izabela-gitnowe zmiany w pliku
